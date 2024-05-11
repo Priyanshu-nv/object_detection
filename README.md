@@ -1,4 +1,4 @@
 
 
-https://github.com/Priyanshu-nv/object_detection/assets/133123493/4e5e781b-2dc2-4dbd-96d8-99af0869023e
+https://github.com/Priyanshu-nv/object_detection/assets/133123493/12a2e774-d041-46ac-84ac-33a530147bbe
 
